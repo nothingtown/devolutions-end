@@ -3,7 +3,7 @@
 
 Want to build a massive base, complete with farms to keep yourself fed during the end? Or would you rather fight the infection for as long as you can? You can do it all.
 
-Will you survive, or will you be assimilated?
+Will you survive, or will you become part of the hive?
 
 
 # Contact
